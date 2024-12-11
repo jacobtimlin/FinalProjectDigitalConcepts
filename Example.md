@@ -1,3 +1,1 @@
-
-![Deepfake Example](![Mosasaur Picture](![image](https://github.com/user-attachments/assets/a9237b92-0bde-4fc1-8a38-9f3f85ff6902)
-)
+![Mosasaur Picture](https://cdn.prod.website-files.com/61dfc899a471632619dca9dd/62f2dd5573c01a4523b4ace6_Deepfake-Optional-Body-of-Article.jpeg)
